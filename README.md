@@ -1,1 +1,0 @@
-# Eddy_Desafio_QI3
